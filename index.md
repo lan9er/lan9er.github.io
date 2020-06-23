@@ -7,3 +7,5 @@ Der Mann, der die Menschheit zu den Sternen führte. Rhodan kann sich äußerst 
 + Sein Sinn für kosmische Zusammenhänge
 * Die Fähigkeit, sich in kürzester Zeit auf neue Sachverhalte einzustellen – Rhodan wird deshalb immer wieder als Sofortumschalter bezeichnet
 * Auf der anderen Seite zeichnet ein trockener Humor den Menschen Perry Rhodan aus
+
+> Wer die Ewigkeit suchen will, muss sich zumindest mit Geduld wappnen.
