@@ -9,3 +9,5 @@ Der Mann, der die Menschheit zu den Sternen führte. Rhodan kann sich äußerst 
 * Auf der anderen Seite zeichnet ein trockener Humor den Menschen Perry Rhodan aus
 
 > Wer die Ewigkeit suchen will, muss sich zumindest mit Geduld wappnen.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/c/c6/Perry_Rhodan_Collage.jpg"/>
